@@ -1,1 +1,0 @@
-<h1>Harvard University</h1>Harvard has 12 degree-granting Schools and the Radcliffe Institute for Advanced Study. We also offer countless of non-degree opportunities for professional and lifelong learners, including executive education, continuing education, and online courses.
